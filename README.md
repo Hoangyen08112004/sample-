@@ -1,2 +1,2 @@
 Introduction to data sience
-![](/insert path here)
+![](/images/461053760_1511795309728636_6624172325452222632_n.jpg)
